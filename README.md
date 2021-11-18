@@ -1,3 +1,3 @@
 # Tim Bloxsome
-Currently employed at Nebo (nebo.global)
+Currently at Nebo (nebo.global) ⛵
 
