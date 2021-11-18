@@ -1,3 +1,3 @@
 # Tim Bloxsome
-Currently at Nebo (nebo.global) ⛵
+Currently at Nebo (nebo.global) ⛵ the boating app.
 
